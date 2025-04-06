@@ -162,7 +162,7 @@ Let’s connect! Reach out for collaborations, projects, or just to share ideas:
 ### 🤩 Fun Facts
 - I’m a proud father of a PhD student. 💙
 - I love breaking down complex tech topics to help beginners enter the field.
-- Favorite motto: _“Be curious. Be persistent. Build amazing things.”_
+- My Mantra : _Tech hands, a science mind, and a heart for community.™_
 
 ---
 
